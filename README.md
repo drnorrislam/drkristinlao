@@ -12,12 +12,12 @@ These options are:
 
 * Continue your optometric care with Dr. Kristin Lao in Richmond Hill (Yonge / Major Mackenzie) and have your file transferred
 
-Dr. Kristin Lao’s new practice address is
-**Richmond Hill Eye Associates (Yonge / Major Mackenzie)
-104 – 10350 Yonge St, Richmond Hill, ON L4C 5K9
+Dr. Kristin Lao’s new practice address is  
+**Richmond Hill Eye Associates (Yonge / Major Mackenzie)  
+104 – 10350 Yonge St, Richmond Hill, ON L4C 5K9  
 T: (905) 884-0061**
 
 I am accepting appointment bookings for eye exams at Richmond Hill Eye Associates. While I do still practice at Bochner Eye Institute, I only provide post-operative care to surgical patients of Bochner Eye Institute.
 
-**A personal note from Dr. Kristin Lao...**
+**A personal note from Dr. Kristin Lao...**  
 It has been such a great pleasure and honour to have provided eye care to you and your families over the years. It was not an easy decision for me to make, to relocate, as I have formed wonderful professional relationships with all of you. I hope that our paths will cross again in the future in some capacity. Best wishes to you and your families and for a healthy future!
